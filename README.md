@@ -1,2 +1,2 @@
-# kirakosyanAbgar1.github.io
+# Abgar Kirakosyan
 Мой первый опубликованный сайт
